@@ -6,3 +6,11 @@
 // contests and as such
 // also researched some more topics
 // rest is quite importnat
+// current plans are to grind from nov 
+// till 1st i have my annual day
+// after that will do a sprint of 10ish days
+// maybe 15 if time permits
+// 10 hours per day just grinding and grinding 
+// will also work on my channel uploading a lot 
+// and a lot of shorts nad videos and 
+// actual informative content 
